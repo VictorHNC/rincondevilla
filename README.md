@@ -1,2 +1,0 @@
-# rincondevilla
-Restaurant Familiar Mexicano
